@@ -1,0 +1,1 @@
+# ----http-vk.com-pages.php-o--1-p-VK.Auth----html-head-script-src-http-vkontakte.r
